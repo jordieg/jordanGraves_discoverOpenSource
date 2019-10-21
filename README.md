@@ -8,3 +8,5 @@ Since Delilah sourced most of her user-testers through her network, their backgr
 My response to the prompt is below:”
 
 Find communities that are different from her, reaching out to people that she doesn't know through different clubs and organizaitons she can tap into different communities.
+
+Suggest going through social media as a place to start. Sharing a post with app details.
